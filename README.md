@@ -15,7 +15,7 @@
 
 - [Linktree - Yashwant Saste](https://linktr.ee/YashwantSaste) - Find all my professional and social links here!
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1pnSfRaUksOyKQGbv9pKwLaFrUc67B8Ec/view](https://drive.google.com/file/d/1pnSfRaUksOyKQGbv9pKwLaFrUc67B8Ec/view)[Resume]
+- 📄 Know about my experiences [Resume-Yashwant Saste](https://drive.google.com/file/d/1pnSfRaUksOyKQGbv9pKwLaFrUc67B8Ec/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
